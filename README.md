@@ -28,7 +28,7 @@
     I am chronically afk or offtab <br>
     whispers work but if you want a sure response I'd sign the yaoibook <br>
     do not copy / inspo my ponies, rentries or anything of that sort thanks <br>
-    c+h is encouraged unless I'm with my gf or friends 👍
+    c+h is encouraged unless I'm with my gf 👍
   </p>
 
   <a href="https://slyblue.atabook.org/" style="color: #add8e6; text-decoration: none;">SIGN MY YAOIBOOK PLEASE</a> + 
