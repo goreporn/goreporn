@@ -26,7 +26,7 @@ no true dni I block freely　　　　　　　　　　　　　　　　　　
 do not copy / inspo my ponies , rentries or anything of that sort thanks　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　 
 c+h is encouraged unless I'm with my gf or friends 👍
 
-
+[SIGN MY ATABOOK PLEASE](https://slyblue.atabook.org/) + [Look at my rentry for more info](https://rentry.co/slyblue)
 
 	 
 ![](https://i.postimg.cc/25C7r09S/image.jpg) ![](https://i.postimg.cc/3xYtxrdh/image5.jpg) ![](https://i.postimg.cc/ZKrfmvYj/image6.jpg)
@@ -34,3 +34,4 @@ c+h is encouraged unless I'm with my gf or friends 👍
 ![](https://i.postimg.cc/9F3xsY2r/image7.jpg) ![](https://i.postimg.cc/Kc3q9sd6/image8.jpg) ![](https://i.postimg.cc/fyd8JJcz/image9.jpg)
 
 ![](https://i.postimg.cc/vZT6zCK9/image11.jpg) ![]([https://i.postimg.cc/vZT6zCK9/image11.jpg) ![](https://i.postimg.cc/c4XnfdF0/image10.jpg)
+</div>
